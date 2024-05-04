@@ -1,4 +1,4 @@
-## Data Quality Analyst II
+## Operations Technician
 -------------------
 Currently working for ManpowerGroup/Experis in the ARVR space 🥽.
 - 👋 Hi, I’m @RaymondWGee
